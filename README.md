@@ -72,7 +72,7 @@
 
 [Jon Kung's Broth 101](https://www.youtube.com/watch?v=ja1XAO1pvgY)
 
-[Todd Mohr's "Endless Soup Ideas From Culinary School](https://www.youtube.com/watch?v=NH4eX_I2Ubw)
+[Todd Mohr's "Endless Soup Ideas From Culinary School"](https://www.youtube.com/watch?v=NH4eX_I2Ubw)
 
 [Kenji's Italian Minestrone Soup](https://www.youtube.com/watch?v=vaiKwrQRam4)
 
