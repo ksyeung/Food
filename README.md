@@ -199,7 +199,7 @@
 [Mike Greenfield's "7 Ingredient Restaurant Style Ramen"](https://www.youtube.com/watch?v=9gNIqtmYg5o)
 
 # South East Asian Recipes
-[Jon Kung's "Jollof Rice With Oxtails](https://www.youtube.com/watch?v=rYDyPt4ytKc)
+[Jon Kung's Jollof Rice With Oxtails](https://www.youtube.com/watch?v=rYDyPt4ytKc)
 
 [Kenji's Simple Filipino Chicken Adobo](https://www.youtube.com/watch?v=ZdxSPFt4oxk)
 
